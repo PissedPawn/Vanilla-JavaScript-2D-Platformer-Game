@@ -5,4 +5,5 @@
 
 Samurai Character:
 
-![screen-capture (4)](https://user-images.githubusercontent.com/57664956/134769475-469110ae-20f7-488a-bd25-dcde26eaaf6a.gif)
+
+![ezgif com-gif-maker (2)](https://user-images.githubusercontent.com/57664956/134769529-5b20d878-66a2-4cf5-a14a-25cd2e608965.gif)
